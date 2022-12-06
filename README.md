@@ -1,4 +1,4 @@
-# Consultant\
+# Consultant
 
 I learn by doing, and pro/low bono consulting helps me gain competencies and experiences outside the workplace. 
 
